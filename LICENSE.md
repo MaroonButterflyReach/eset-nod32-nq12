@@ -1,4 +1,4 @@
-# 
+# instant Bitdefender 全方位安全 PC版 扩展 是最佳 Bitdefender 全方位安全 PC版 扩展，集成 云扫描 和 文件加密。安全、可靠、优化，性能最大化。
 
 
 
